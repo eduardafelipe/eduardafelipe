@@ -66,5 +66,24 @@ _-Bolo simples
 ![Image](https://user-images.githubusercontent.com/115032426/200639623-b4f4e530-ae69-42f0-ba41-76f7f22509af.png)
 
 
+### _OS QUERIDINHOS DA GALERA_
+
+
+
+![Image](https://user-images.githubusercontent.com/115032426/200641428-d081fccd-4662-4f80-a7bc-acd8dcaa881e.png)
+### R$34,89
+
+
+![Image](https://user-images.githubusercontent.com/115032426/200641822-75b9bb5d-2ba6-4048-bd32-4ea570d7b4d9.png)
+
+### R$18,90
+
+
+
+![Image](https://user-images.githubusercontent.com/115032426/200642110-56fef578-9d29-4f1e-ae17-5737dcc5804b.png)
+
+### R$28,79
+
+
 
 
