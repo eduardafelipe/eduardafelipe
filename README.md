@@ -126,6 +126,8 @@ _-Bolo simples
 
 ### COMPRAS À VISTA COM 5% DE DESCONTO 👍 
 
+### **ACEITAMOS PIX 👍**
+
 
 
 
