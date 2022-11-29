@@ -17,7 +17,8 @@
 
 **Av. Iguaçu, 820 - Rebouças, Curitiba - PR, 80230-020**
 
-**-ROMANCE
+-ROMANCE
+
 -FANTASIA
 
 -SUSPENSE
