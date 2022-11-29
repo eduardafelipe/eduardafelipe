@@ -15,7 +15,7 @@
 **`OU ACESSE @MERAKILIVRARIA MERAKILIVRARIA`**
 
 
-**Av. Iguaçu, 820 - Rebouças, Curitiba - Pr, 80230-020**
+**Av. Iguaçu, 820 - Rebouças, Curitiba - PR, 80230-020**
 
 **-ROMANCE
 -FANTASIA
@@ -25,6 +25,18 @@
 -FICÇÃO CIENTIFICA
 
 -CRÔNICA
+### FREQUENTEMENTE COMPRADOS JUNTOS
+
+
+
+
+
+![Image](https://user-images.githubusercontent.com/115032426/204629351-127bdbe6-1a06-4f48-8d83-0bfbbbde6cf5.png)
+
+**COMPRE OS TRÊS: R$ 94,77**
+
+
+
 
 -CONTO
 
