@@ -120,13 +120,28 @@ _-Bolo simples
 
 
 
-### **_COMPRAS ACIMA DE R$100,00_**
+### **_COMPRAS ACIMA DE R$ 100,00_**
 ### **_PARCELAMOS EM ATÉ 3X SEM JUROS_**
 
 
 ### COMPRAS À VISTA COM 5% DE DESCONTO 👍 
 
 ### **ACEITAMOS PIX 👍**
+
+
+### FREQUENTEMENTE COMPRADOS JUNTOS
+
+
+
+
+
+![Image](https://user-images.githubusercontent.com/115032426/204629351-127bdbe6-1a06-4f48-8d83-0bfbbbde6cf5.png)
+
+**COMPRE OS TRÊS: R$ 94,77**
+
+
+
+
 
 
 
